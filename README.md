@@ -1,0 +1,2 @@
+# Grisza
+Repozytorium Grzegorza
